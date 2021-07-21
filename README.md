@@ -1,0 +1,1 @@
+# Insere-Data-Tirada-Em-Na-Foto
